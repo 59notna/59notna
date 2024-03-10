@@ -1,5 +1,10 @@
-### Hi there 👋
+### Anton Mauritz Andersson aka CharmingBingo co 👋
 
+
+Booom Do Not Know Hot I Did This 👽 
+🤡👊
+👀
+<3
 <!--
 **59notna/59notna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
